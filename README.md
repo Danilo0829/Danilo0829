@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Danilo 
+- 👀 I’m interested in woman
+- 🌱 I’m currently learning cs2 
+- 💞️ Status: single
+- 📫 How to reach me: Facebook
+- 😄 Pronouns: Au/tist
+- ⚡ Fun fact: im single
